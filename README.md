@@ -7,6 +7,8 @@ Meu nome é André Alifer
 - Utilizo esse espaço para organização e compartilhamento dos meu projetos desenvolvidos
 
 ### Você pode entrar em contato comigo enviando mensagens ao e-mail abaixo 📫
+
 andrealifer@hotmail.com
+
 
 ![](https://media1.tenor.com/m/0hjOGLFaQa0AAAAd/lofi-girl-lofi.gif)
